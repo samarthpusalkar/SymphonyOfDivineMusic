@@ -1,7 +1,7 @@
 ### **Bhagavad Gita - Chapter 5: The Yoga of Renunciation**
 
 **Narrator:**
-OM SHRI PARAMATMANI NAMAH. I bow down to the Supreme Consciousness.
+OM SHRI PARAMATMANE NAMAH. I bow down to the Supreme Consciousness.
 And now, we start the holy Bhagavad Gita. Thus starts the fifth chapter of Bhagavad Gita, which describes Sannyasayogah, where Lord Krishna expounds upon that kind of activity which leads to liberation. After listening to Lord Krishna's explanation on various kinds of activity in the last chapter, Arjuna still has some doubts, which he expresses thus.
 
 **Arjuna:**
