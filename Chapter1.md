@@ -100,7 +100,7 @@ O Janardana, even if these Kauravas are blinded by their greed, a mistake that i
 When a house and its members are destroyed, its traditions and laws are lost. Once the laws are completely gone, anarchy prevails.
 
 **Arjuna:**
-Once unlawful activities are on the rise, women are no longer safe. With that corruption, O descendant of Hrishni, the varnashrama dharma gets spoiled.
+Once unlawful activities are on the rise, women are no longer safe. With that corruption, O descendant of Vrishni, the varnashrama dharma gets spoiled.
 
 **Arjuna:**
 Once the varnashrama dharma is lost, life becomes hell for both the perpetrators and the victims. Deprived of the ritualistic offerings, even the ancestors of such corrupt families fall.
